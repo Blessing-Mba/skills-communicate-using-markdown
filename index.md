@@ -1,3 +1,5 @@
+! [Image of Black woman](https://pin.it/7s9llbI)
+
 # DAILY AFFIRMATION 
 ## I am loved
 ### I am brave
